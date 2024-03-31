@@ -1,1 +1,2 @@
-# astro-work
+# This was a work of mine when I was 16. and I started to work on my atro.bp3 Instagram page. I wanted to make a website of my own but did not want to buy a name for only a few years.
+I'll remember these days as my hard and breaking days. Where God broken me into peices and I am collecting my parts again to fight for my destiny. I'll fight hard to be a great personality and will make everyone surrender to me. This is just starting. This is a slow reaction which is taking some time to make a powerful castel.
